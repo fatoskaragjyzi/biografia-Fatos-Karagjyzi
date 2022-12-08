@@ -1,1 +1,1 @@
-# Biogarafi e shkurter-Fatos Karagjyzi
+# Biografi e shkurter-Fatos Karagjyzi
